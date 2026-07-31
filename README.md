@@ -20,3 +20,5 @@ What i did:
    ## NOTE
 
    if you choose not to be friends with me anymore understand and if you have any questions dm me on discord @itzdexau
+
+   and he already contacted my local police station and idk how much more hes gonna do and he leaked my adress do if i go to jail hes coming along with me :)
